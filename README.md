@@ -1,5 +1,5 @@
 # SuperCoolProject
 
-Guys im having second thoughts, this might not be as cool as I thought.
+Guys ive had second thoughts, this is not as cool as I thought.
 
-Mark Fuller
+Gerald Hal
